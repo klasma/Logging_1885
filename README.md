@@ -1,0 +1,1 @@
+# Lindesbergs kommun
